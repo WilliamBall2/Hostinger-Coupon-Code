@@ -1,4 +1,4 @@
-# Hostinger Coupon Code (2026): Up to 83% Off + Extra 20% Discount & Free Domain
+# Hostinger Coupon Code [May 2026] – Get 83% Discount
 
 Want to grab the best deal on Hostinger hosting in 2026?
 
