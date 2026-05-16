@@ -1,6 +1,6 @@
 # Hostinger Coupon Code [May 2026] – Get 83% Discount
 
-Hostinger is currently offering up to 83% off on hosting plans in May 2026. The deal can be activated through the verified referral link or by using the DEMANDSAGE coupon code during checkout on eligible plans. 
+Hostinger is currently offering up to 83% off on hosting plans in May 2026. The deal can be activated through the verified referral link or by using the **DEMANDSAGE** coupon code during checkout on eligible plans. 
 
 Depending on the offer you choose, the discount may apply automatically through the referral link or manually with the coupon code at checkout. Below, you’ll find all the latest Hostinger coupon codes, pricing details, plan comparisons, and the best available offers worth claiming right now. 
 
@@ -127,7 +127,7 @@ Getting the Hostinger discount is quick and simple. Just follow the steps below.
        style="border:none; cursor:pointer;">
 </a>
 
-**Step 5:** Enter DEMANDSAGE in the box and click Apply. The discounted price reflects in your cart immediately.
+**Step 5:** Enter **DEMANDSAGE** in the box and click Apply. The discounted price reflects in your cart immediately.
 
 <a href="https://www.demandsage.com/go/hostinger" target="_blank" rel="noopener noreferrer">
   <img src="https://github.com/vedant635/host/blob/main/img/Step-5.png" 
@@ -286,7 +286,7 @@ Outside that window, the referral link here is the highest active deal. Other sa
 
 ## Does the coupon apply to VPS hosting?
 
-Yes. The 20% referral discount and manual codes (DEMANDSAGE) all work on KVM 1 through KVM 8. Minimum 12-month billing cycle required.
+Yes. The 20% referral discount and manual codes (**DEMANDSAGE**) all work on KVM 1 through KVM 8. Minimum 12-month billing cycle required.
 
 Full root access, Linux distro choices, and optional control panels are included regardless of which discount you use.
 
@@ -306,7 +306,7 @@ Worth it in 2026? For blogs, portfolios, small businesses, freelancer projects, 
 
 That wraps up every working Hostinger coupon code for May 2026.
 
-With up to 83% off and our DEMANDSAGE code adding an extra 10% on top, you can lock in WordPress hosting starting as low as $2.69/month, plus 3 months of free hosting, a free domain, and SSL included. If you need more power, the Cloud and VPS plans follow the same coupon structure with equally solid discounts.
+With up to 83% off and our **DEMANDSAGE** code adding an extra 10% on top, you can lock in WordPress hosting starting as low as $2.69/month, plus 3 months of free hosting, a free domain, and SSL included. If you need more power, the Cloud and VPS plans follow the same coupon structure with equally solid discounts.
 
 Copy the code, apply it at checkout, and you're set. If you're still on the fence, the 30-day money-back guarantee means there's no real risk in giving it a shot.
 
@@ -314,7 +314,7 @@ Copy the code, apply it at checkout, and you're set. If you're still on the fenc
 
 **What is the best Hostinger coupon code for May 2026?**
 
-The referral link on this page gives the highest discount, 83% off plus an extra 20%, applied automatically. For a manual code, DEMANDSAGE offers up to 84% off plus 10%.
+The referral link on this page gives the highest discount, 83% off plus an extra 20%, applied automatically. For a manual code, **DEMANDSAGE** offers up to 84% off plus 10%.
 
 **Which Hostinger plans qualify for the coupon?**
 
