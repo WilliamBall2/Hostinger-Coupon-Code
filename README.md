@@ -4,7 +4,7 @@ Hostinger is currently offering up to 83% off on hosting plans in May 2026. The 
 
 Depending on the offer you choose, the discount may apply automatically through the referral link or manually with the coupon code at checkout. Below, you’ll find all the latest Hostinger coupon codes, pricing details, plan comparisons, and the best available offers worth claiming right now. 
 
-<a href="https://www.demandsage.com/go/hostinger" target="_blank" rel="noopener noreferrer">
+<a href="https://www.hostg.xyz/aff_c?offer_id=680&aff_id=138186&url_id=5343" target="_blank" rel="noopener noreferrer">
   <img src="https://github.com/vedant635/host/blob/main/img/Claim%20Up%20to%2083%25%20Off.png" 
        alt="Claim Up to 83% Off" 
        style="border:none; cursor:pointer;">
@@ -35,7 +35,7 @@ Here's a breakdown of the latest Hostinger coupon codes and discounts for each s
 
 </div>
 
-<a href="https://www.demandsage.com/go/hostinger" target="_blank" rel="noopener noreferrer">
+<a href="https://www.hostg.xyz/aff_c?offer_id=680&aff_id=138186&url_id=5343" target="_blank" rel="noopener noreferrer">
   <img src="https://github.com/vedant635/host/blob/main/img/Activate%20Hostinger%20Coupon%20Code.png" 
        alt="Activate Hostinger Coupon Code" 
        style="border:none; cursor:pointer;">
@@ -83,7 +83,7 @@ Up to 97% off. TLDs from $0.99/year.
 
 Business email from $0.39/mo (87% off). Marketing tools at up to 70% off + 10%.
 
-<a href="https://www.demandsage.com/go/hostinger" target="_blank" rel="noopener noreferrer">
+<a href="https://www.hostg.xyz/aff_c?offer_id=680&aff_id=138186&url_id=5343" target="_blank" rel="noopener noreferrer">
   <img src="https://github.com/vedant635/host/blob/main/img/WordPress%20Hosting%20%2B%20Free%20Domain%20%2B%2077%25%20Off.png" 
        alt="WordPress Hosting + Free Domain + 77% Off" 
        style="border:none; cursor:pointer;">
@@ -97,7 +97,7 @@ Getting the Hostinger discount is quick and simple. Just follow the steps below.
 
 **Step 1:** Go to the Hostinger homepage and click Services from the top navigation bar.
 
-<a href="https://www.demandsage.com/go/hostinger" target="_blank" rel="noopener noreferrer">
+<a href="https://www.hostg.xyz/aff_c?offer_id=680&aff_id=138186&url_id=5343" target="_blank" rel="noopener noreferrer">
   <img src="https://github.com/vedant635/host/blob/main/img/Step-1.png" 
        alt="Step-1" 
        style="border:none; cursor:pointer;">
@@ -105,7 +105,7 @@ Getting the Hostinger discount is quick and simple. Just follow the steps below.
 
 **Step 2:** Pick the service you want: Web Hosting, WordPress, Cloud, VPS, Website Builder, or any other product.
 
-<a href="https://www.demandsage.com/go/hostinger" target="_blank" rel="noopener noreferrer">
+<a href="https://www.hostg.xyz/aff_c?offer_id=680&aff_id=138186&url_id=5343" target="_blank" rel="noopener noreferrer">
   <img src="https://github.com/vedant635/host/blob/main/img/Step-2.png" 
        alt="Step-2" 
        style="border:none; cursor:pointer;">
@@ -113,7 +113,7 @@ Getting the Hostinger discount is quick and simple. Just follow the steps below.
 
 **Step 3:** Scroll down to pricing, choose your plan, and you'll be redirected to the checkout page.
 
-<a href="https://www.demandsage.com/go/hostinger" target="_blank" rel="noopener noreferrer">
+<a href="https://www.hostg.xyz/aff_c?offer_id=680&aff_id=138186&url_id=5343" target="_blank" rel="noopener noreferrer">
   <img src="https://github.com/vedant635/host/blob/main/img/Step-3.png" 
        alt="Step-3" 
        style="border:none; cursor:pointer;">
@@ -121,7 +121,7 @@ Getting the Hostinger discount is quick and simple. Just follow the steps below.
 
 **Step 4:** Select your billing period (12, 24, or 48 months). Then click "Have a Coupon Code?" to open the coupon box.
 
-<a href="https://www.demandsage.com/go/hostinger" target="_blank" rel="noopener noreferrer">
+<a href="https://www.hostg.xyz/aff_c?offer_id=680&aff_id=138186&url_id=5343" target="_blank" rel="noopener noreferrer">
   <img src="https://github.com/vedant635/host/blob/main/img/Step-4.png" 
        alt="Step-4" 
        style="border:none; cursor:pointer;">
@@ -129,7 +129,7 @@ Getting the Hostinger discount is quick and simple. Just follow the steps below.
 
 **Step 5:** Enter **DEMANDSAGE** in the box and click Apply. The discounted price reflects in your cart immediately.
 
-<a href="https://www.demandsage.com/go/hostinger" target="_blank" rel="noopener noreferrer">
+<a href="https://www.hostg.xyz/aff_c?offer_id=680&aff_id=138186&url_id=5343" target="_blank" rel="noopener noreferrer">
   <img src="https://github.com/vedant635/host/blob/main/img/Step-5.png" 
        alt="Step-5" 
        style="border:none; cursor:pointer;">
@@ -137,7 +137,7 @@ Getting the Hostinger discount is quick and simple. Just follow the steps below.
 
 **Step 6:** Review the updated price and click Continue.
 
-<a href="https://www.demandsage.com/go/hostinger" target="_blank" rel="noopener noreferrer">
+<a href="https://www.hostg.xyz/aff_c?offer_id=680&aff_id=138186&url_id=5343" target="_blank" rel="noopener noreferrer">
   <img src="https://github.com/vedant635/host/blob/main/img/Step-6.png" 
        alt="Step-6" 
        style="border:none; cursor:pointer;">
@@ -145,7 +145,7 @@ Getting the Hostinger discount is quick and simple. Just follow the steps below.
 
 **Step 7:** Create a new Hostinger account with your email and password, or log in if you already have one.
 
-<a href="https://www.demandsage.com/go/hostinger" target="_blank" rel="noopener noreferrer">
+<a href="https://www.hostg.xyz/aff_c?offer_id=680&aff_id=138186&url_id=5343" target="_blank" rel="noopener noreferrer">
   <img src="https://github.com/vedant635/host/blob/main/img/Step-7.png" 
        alt="Step-7" 
        style="border:none; cursor:pointer;">
@@ -153,7 +153,7 @@ Getting the Hostinger discount is quick and simple. Just follow the steps below.
 
 **Step 8:** Enter your billing address, choose a payment method (card, PayPal, Google Pay, UPI for India), and complete the purchase.
 
-<a href="https://www.demandsage.com/go/hostinger" target="_blank" rel="noopener noreferrer">
+<a href="https://www.hostg.xyz/aff_c?offer_id=680&aff_id=138186&url_id=5343" target="_blank" rel="noopener noreferrer">
   <img src="https://github.com/vedant635/host/blob/main/img/Step-8.png" 
        alt="Step-8" 
        style="border:none; cursor:pointer;">
@@ -163,7 +163,7 @@ That's it — you've claimed the discount. Head to the dashboard, claim your fre
 
 Note: Coupons are for first-time users only, one use per account.
 
-<a href="https://www.demandsage.com/go/hostinger" target="_blank" rel="noopener noreferrer">
+<a href="https://www.hostg.xyz/aff_c?offer_id=680&aff_id=138186&url_id=5343" target="_blank" rel="noopener noreferrer">
   <img src="https://github.com/vedant635/host/blob/main/img/Claim%20Up%20to%2083%25%20Off.png" 
        alt="Claim Up to 83% Off" 
        style="border:none; cursor:pointer;">
@@ -225,7 +225,7 @@ All Hostinger coupon codes work in India — no restrictions. Pricing displays i
 | WordPress Business | DEMANDSAGE | ₹236.55/mo | ₹699/mo | 66% Off |
 | Cloud WordPress | DEMANDSAGE | ₹569.05/mo | ₹1,699/mo | 67% Off |
 
-<a href="https://www.demandsage.com/go/hostinger" target="_blank" rel="noopener noreferrer">
+<a href="https://www.hostg.xyz/aff_c?offer_id=680&aff_id=138186&url_id=5343" target="_blank" rel="noopener noreferrer">
   <img src="https://github.com/vedant635/host/blob/main/img/WordPress%20Hosting%20%2B%20Free%20Domain%20%2B%2077%25%20Off.png" 
        alt="WordPress Hosting + Free Domain + 77% Off" 
        style="border:none; cursor:pointer;">
@@ -261,7 +261,7 @@ Vibe coding platform. Describe an app in text, voice, or sketch, and Horizons bu
 
 One-click n8n hosting for AI workflows and automation. 500+ app integrations, pre-built templates, same VPS pricing.
 
-<a href="https://www.demandsage.com/go/hostinger" target="_blank" rel="noopener noreferrer">
+<a href="https://www.hostg.xyz/aff_c?offer_id=680&aff_id=138186&url_id=5343" target="_blank" rel="noopener noreferrer">
   <img src="https://github.com/vedant635/host/blob/main/img/Get%20Premium%20Hosting%20%2B%20Extra%2010%25%20Off.png" 
        alt="Get Premium Hosting + Extra 10% Off" 
        style="border:none; cursor:pointer;">
@@ -294,7 +294,7 @@ Full root access, Linux distro choices, and optional control panels are included
 
 Hostinger has been around since 2004, is based in Lithuania, serving over 3 million users across 178 countries. They've built their name on being the budget option that doesn't perform like one, with LiteSpeed servers, NVMe storage, a working AI toolkit, and data centres in North America, Europe, South America, and Asia (including Mumbai and Singapore). The 99.9% uptime SLA holds up in third-party tests, and live chat support averages under 2-minute response times.
 
-<a href="https://www.demandsage.com/go/hostinger" target="_blank" rel="noopener noreferrer">
+<a href="https://www.hostg.xyz/aff_c?offer_id=680&aff_id=138186&url_id=5343" target="_blank" rel="noopener noreferrer">
   <img src="https://github.com/vedant635/host/blob/main/img/What%20Is%20Hostinger.png" 
        alt="What Is Hostinger" 
        style="border:none; cursor:pointer;">
